@@ -1,1 +1,0 @@
-# prosjekt_gruppe24
